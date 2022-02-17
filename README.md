@@ -1,2 +1,2 @@
-# CursedMoments
-Cursed stuff that I've collected over the years.
+# Collection
+Stuff that I've collected over the years.

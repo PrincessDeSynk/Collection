@@ -1,3 +1,4 @@
+# Discord Directory
 ![sexysubstance](https://user-images.githubusercontent.com/69215033/158718067-cc8defff-50d8-4cac-9930-3bec3a281bd2.png)
 ![Mac WTF Bro](https://user-images.githubusercontent.com/69215033/158718081-552c4c5a-3c84-4fcf-9849-1f0880ac69f1.jpg)
 ![My Mom - Why Do I hear boss music - Aro Meme](https://user-images.githubusercontent.com/69215033/158718094-5ec3f405-b4f0-4000-b2fd-05420329de5c.png)
